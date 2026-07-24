@@ -1,1 +1,1 @@
-another snake game because i was bored
+another snake game because i was bored lol
